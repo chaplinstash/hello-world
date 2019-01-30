@@ -1,2 +1,2 @@
 # hello-world
-talking to the robots
+I have stumbled upon the tongue of the new gods and so begin my journey to cyber-Valhalla!
